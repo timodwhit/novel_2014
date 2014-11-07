@@ -1,5 +1,3 @@
-Chapter 05 - Mr Sugar's Gang
-
 The night was another cold one. It seems like winter is coming faster than the
 times I remember. But that could just be me.
 
@@ -241,11 +239,7 @@ later with exacts and whereabouts of the gang members. I imagine they move, and
 by the looks of it, the numbers grow.
 
 So far a couple hours have passed and there has been a lot of action, but this
-stomach of mine has seen none of it,
+my stomach has seen none of it. I must get something to eat.
 
-
-
-
-
-
-
+As I look up to head out, I realize I am suddenly surrounded. Or what I think is
+suddenly, they could have been here this whole time.
